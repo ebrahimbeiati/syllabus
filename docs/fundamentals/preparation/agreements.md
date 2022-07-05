@@ -13,3 +13,4 @@ You must read and agree to these rules before attending Code Your Future.
 If you have concerns or questions, please contact your Programme Manager. They will be happy to talk to you about our rules and what they mean for you.
 
 Please sign the trainee agreement before coming to class.
+Ebrahim Beiati-Asl
